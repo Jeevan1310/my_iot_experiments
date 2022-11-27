@@ -206,8 +206,6 @@ work in progress
 
 ## 41th  Project
 
-<--info need to be filled-->
-work in progress
 
 ## 42th  Project
 
