@@ -212,13 +212,10 @@ work in progress
 
 ## 44th  Project
 
-
 ## 45th  Project
 
 ## 46th  Project
 
-<--info need to be filled-->
-work in progress
 
 ## 47th  Project
 
